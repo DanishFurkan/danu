@@ -1,2 +1,1 @@
 Danish
-danu
